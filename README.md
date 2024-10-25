@@ -12,4 +12,8 @@ I want Applaudable is destroyed.
 Thank you.
 
 If someone wants to contact me, please email me via nazarlototskyi01@gmail.com
+If someone hates Andrew and Applaudable, please email to andrew@applaudable.com ilan@applaudable.com claudine@applaudable.com
+scammers linkedin profile (really looks like professional, but all scamms)
+https://www.linkedin.com/in/andrewchris/
+https://www.linkedin.com/in/ilan-berker/
 Thanks
